@@ -1,1 +1,1 @@
-# bilgisyarburda
+# BİLGİSYAR BURDA WEP SİTEMİZE HOŞ GELDİNİZ :)
